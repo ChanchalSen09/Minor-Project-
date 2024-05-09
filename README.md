@@ -1,2 +1,2 @@
 # Minor-Project-
-Jawaharlal Institute Of Technology Borawan ( Khargaan ) Project 
+Jawaharlal Institute Of Technology Borawan ( Khargaon ) Project 
